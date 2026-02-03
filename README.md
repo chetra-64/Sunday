@@ -1,2 +1,2 @@
 ### about me
-A total beginner trying to learn.
+Learning abou the funtions of this website currently
